@@ -16,7 +16,7 @@ I am living just a simple life, coding via a phone. It's my passion and *a girl*
 **YES, this is open source.** It is covered by Creative Commons Zero license, meaning you can do anything with it except the assets (well obviously). Come on, **I ❤️ open source**.
 
 ## Liked my simple work?
-Thank you ☺️. Consider donating to my [PayPal](https://paypal.me/FranzNicPH) as a token of appreciation. You may also donate via GCash or PayMaya, just contact me at admin@pranchi.xyz 
+Thank you ☺️. Consider donating to my [PayPal](https://paypal.me/FranzNicPH) as a token of appreciation. You may also donate via GCash or PayMaya, just contact me at pranchi@vallessalta.diablosph.xyz. 
 **It really helps a lot building my own equipment, including a computer!**
 
 ## Socials
